@@ -1,0 +1,1 @@
+All contents of this repository belong to Shani Richy-Von Senden.
